@@ -1,6 +1,5 @@
 # seventh-abomination-guide
 Discover "The Seventh Abomination" – a transformative guide to breaking free from comparison, insecurity, and self-doubt.
-![The Seventh Abomination Book Cover](seventh abomination.jpg)
 # 🌟 The Seventh Abomination: Unmasking Pride's Deceit in a World Obsessed with Image 🌟
 
 **Author:** Aneesa Bhattan  
