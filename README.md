@@ -7,7 +7,7 @@ Discover "The Seventh Abomination" – a transformative guide to breaking free f
 
 **Author:** Aneesa Bhattan  
 **Category:** Education / Self-Help  
-**Price:** US$15.00  
+**Price:** US$8.99
 
 ---
 
