@@ -37,7 +37,7 @@ Inside this book, you will learn how to:
 
 Take the next step toward freedom and confidence:  
 
-[**Buy on Digital Canopy – US$15**]([)](https://digitalcanopi.com/book-detail/the-seventh-abomination-unmasking-prides-deceit-in-a-world-obsessed-with-image)
+[**Buy on Digital Canopy – US$8.99**]([)](https://digitalcanopi.com/book-detail/the-seventh-abomination-unmasking-prides-deceit-in-a-world-obsessed-with-image)
 
 ---
 
